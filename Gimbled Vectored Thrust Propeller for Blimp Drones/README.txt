@@ -1,0 +1,1 @@
+Gimbled Vectored Thrust Propeller for Blimp Drones by Msummers123 on Thingiverse: https://www.thingiverse.com/thing:3764377
